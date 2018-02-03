@@ -5,7 +5,7 @@ Enlaces:
 http://educlaboral.cubaeduca.cu/0-lista-temas-alumnos-9no-nueva
 
  **C.E.I "Yolanda Martinez"** Conuco Escolar
-+Desarrollar Conocimiento
-+Lumbricultura
-+Productos Organicos
-+Investigación en Producción de Semillas.
+* Desarrollar Conocimiento
+- Lumbricultura
++ Productos Organicos
++ Investigación en Producción de Semillas.
