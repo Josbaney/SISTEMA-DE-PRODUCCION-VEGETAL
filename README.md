@@ -6,7 +6,7 @@ Enlaces:
 + http://sian.inia.gob.ve/index.php/publicaciones/publicaciones-noperiodicas
 
  **C.E.I "Yolanda Martinez"** Conuco Escolar
-+ Desarrollar Conocimiento
++ Desarrollar Conocimiento Agroecología
 + Lumbricultura
 + Productos Orgánicos
 + Investigación en Producción de Semillas.
