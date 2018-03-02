@@ -15,3 +15,5 @@ Enlaces:
 
 
 [![Click to see the youtube video]https://www.youtube.com/watch?v=ZI2x_obaAyw
+
+- Minppau y MPPEUCT trabajan en planes estratégicos para desarrollar de biotecnología vegetal
