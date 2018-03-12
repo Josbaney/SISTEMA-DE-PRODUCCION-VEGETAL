@@ -7,6 +7,7 @@ Enlaces:
 + http://educlaboral.cubaeduca.cu/0-lista-temas-alumnos-9no-nueva
 + http://sian.inia.gob.ve/index.php/publicaciones/publicaciones-noperiodicas
 + https://www.aporrea.org/desalambrar/a223840.html
++ http://ingagroalimentacion.blogspot.com/p/reflexiones-de-fidel.html
 
  **C.E.I "Yolanda Martinez"** Conuco Escolar
 + Desarrollar Conocimiento Agroecología
