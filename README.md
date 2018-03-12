@@ -8,6 +8,7 @@ Enlaces:
 + http://sian.inia.gob.ve/index.php/publicaciones/publicaciones-noperiodicas
 + https://www.aporrea.org/desalambrar/a223840.html
 + http://ingagroalimentacion.blogspot.com/p/reflexiones-de-fidel.html
++ http://fecunda.info.ve/multimedia/
 
  **C.E.I "Yolanda Martinez"** Conuco Escolar
 + Desarrollar Conocimiento Agroecología
