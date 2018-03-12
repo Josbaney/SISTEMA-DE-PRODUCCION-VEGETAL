@@ -1,6 +1,7 @@
 # SISTEMA-DE-PRODUCCION-VEGETAL
 AGROALIMENTARIA MISIÓN SUCRE:
 + https://sites.google.com/site/vencedorespaneleros/sistema-de-produccion-vegetal
++ http://basedemisionojodeagua.blogspot.com/2016/02/pnf-agroalimentaria.html
 
 Enlaces:
 + http://educlaboral.cubaeduca.cu/0-lista-temas-alumnos-9no-nueva
